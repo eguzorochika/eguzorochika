@@ -1,7 +1,7 @@
 - 👋 Hi, Eguzoro chikadibia 
 - 👀 I’ i am interested in cyber security 
 - 🌱 I’currently studying information tech
-- 💞️ i am ready to learn and groe
+- 💞️ i am ready to learn and grow
 - 📫 my email is eguzoro93@gmail.com
 
 <!---
